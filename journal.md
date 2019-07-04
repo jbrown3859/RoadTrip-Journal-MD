@@ -1,13 +1,14 @@
 # Journal
+
 ## Day 1
 #### Tripometer: 738
-..* We left La Crescenta around 6:20 and arrived at our stop for the night at around 6:30, making around 12 hours of driving for the day. 
-..* We ate lunch at Cesar Chavez Park in Berkeley at a turnaround where one could see 3 major Bay Area bridges.
-..* The scene change was drastic as we went from the 5 to the 580 - from desert and nothingness to dense forest, and even denser forest and interesting landscapes as we went north on the 101.
-..* Tonight we are staying on a dirt roundabout hidden next to a logging road, about 15 minutes north of Trinidad. Found on **iOverlander**, we chose this after exploring two other options, one just being a small turnout on a one lane overgrown dirt road in the hills above the coast.
-..* We arent tired even after all the driving today. However, Andrew is having to deal with Lactaid responsibilities.
-..* No service here but I am collecting most media on an external drive.
-..* We stopped for gas in Fresno, Berkeley, and near Humbolt.
+- We left La Crescenta around 6:20 and arrived at our stop for the night at around 6:30, making around 12 hours of driving for the day. 
+- We ate lunch at Cesar Chavez Park in Berkeley at a turnaround where one could see 3 major Bay Area bridges.
+- The scene change was drastic as we went from the 5 to the 580 - from desert and nothingness to dense forest, and even denser forest and interesting landscapes as we went north on the 101.
+- Tonight we are staying on a dirt roundabout hidden next to a logging road, about 15 minutes north of Trinidad. Found on **iOverlander**, we chose this after exploring two other options, one just being a small turnout on a one lane overgrown dirt road in the hills above the coast.
+- We arent tired even after all the driving today. However, Andrew is having to deal with Lactaid responsibilities.
+- No service here but I am collecting most media on an external drive.
+- We stopped for gas in Fresno, Berkeley, and near Humbolt.
 
 ## Day 2
 #### Tripometer: 1002
@@ -43,30 +44,30 @@
 ##### Days 4-6 are written in the past tense. I didnt do them until night 7
 ## Days 4-6
 #### Tripometer: 2068.2 miles
-So after Florence, the PNW Itineray went out the window. After Snag Lake, we went up the Washington Coast and explored a little of Olympic National Park. Stopped at the Ranger Station and hiked less than a mile to a large tree.
-We also stopped at a fish hatchery on reservation land that was playing a 23 min video on the history of the reservation. We did not watch the whole video.
-Later, we arrived at Neah Bay and learned that we needed to buy a pass to park and hike to Cape Flattery. We did not do that. Instead, we just drove around and trued to find good photo ops. On the road out to Neah Bay one can see Canada.
-After that, we drove to Port Angeles. Cole and I argued about whether the name Guy can be pronounced "gee". I won.
-At the RV Park in Port Angeles, we met Andrew's family. We showered and did a load of laundry. We made smores and talked with Andrew's aunt, uncle, and cousin. At 11, we went out to the mouth of the sound and shot the sky.
-Dinner that night was interesting; Cole attempted chicken and white sauce. He cooked the chicken and started the white sauce. As he put the parmesean cheese in, it coagulated instead of melting in with the milk. We only at the chicken.
-I made coffee with 1/2 tbsp butter, 2 tbsp milk, rest water, and a dark french roast starbucks via. Bitter but very creamy.
-We woke up early the next day and headed for Kingston to board a ferry to Edmonds. We were trying to get into Seattle to Pike's Place. We drove in, parked, and started walking the couple blocks to Pike's Place. 
-However, we quickly learned that a Pride Parade was happenning on a street crossing our path. We eventually found a way through the parade and at lunch at the Pike's Place fish market. More specifically, Athenian Fish and Chips. The chef working infront of us had worked at Philmont in 2012. While at the market, we also bought a fresh salmon fillet for that night's dinner.
-We also walked the boardwalk and saw the 2 hour wait for the original Starbucks. We found our way back to the car eventually, fighting back through the parade. We drove to REI just to get stickers.
-Heading up the 5, we turned onto the 20 East. We planned to stay at a more primitive camp on Baker Lake. We found an amazing spot and were soon joined by a loud college group.
-We cooked the salmon somehow very well on the camp stove, as well as some mashed potatoes and fresh greenbeans.
-Here, we saw 2 snakes in camp.
-Day 6 we headed through the North Cascades, a look into what Glacier might be. We were a little dissapointed but really only got the roadside attractions. We drove all the way through Spokane, listening to a Dollop espisode on Spokane's history of corrupt police. We ate dinner at a Panda Express in Idaho and headed for the hills for camp.
-Midway to Spokane was the town of Winthrop, where we had lunch. Andrew drank all the pickle juice in the jar just to get the last 2 pickles and felt very sick afterwards.
+- So after Florence, the PNW Itineray went out the window. After Snag Lake, we went up the Washington Coast and explored a little of Olympic National Park. Stopped at the Ranger Station and hiked less than a mile to a large tree.
+- We also stopped at a fish hatchery on reservation land that was playing a 23 min video on the history of the reservation. We did not watch the whole video.
+- Later, we arrived at Neah Bay and learned that we needed to buy a pass to park and hike to Cape Flattery. We did not do that. Instead, we just drove around and trued to find good photo ops. On the road out to Neah Bay one can see Canada.
+- After that, we drove to Port Angeles. Cole and I argued about whether the name Guy can be pronounced "gee". I won.
+- At the RV Park in Port Angeles, we met Andrew's family. We showered and did a load of laundry. We made smores and talked with Andrew's aunt, uncle, and cousin. At 11, we went out to the mouth of the sound and shot the sky.
+- Dinner that night was interesting; Cole attempted chicken and white sauce. He cooked the chicken and started the white sauce. As he put the parmesean cheese in, it coagulated instead of melting in with the milk. We only at the chicken.
+- I made coffee with 1/2 tbsp butter, 2 tbsp milk, rest water, and a dark french roast starbucks via. Bitter but very creamy.
+- We woke up early the next day and headed for Kingston to board a ferry to Edmonds. We were trying to get into Seattle to Pike's Place. We drove in, parked, and started walking the couple blocks to Pike's Place. 
+- However, we quickly learned that a Pride Parade was happenning on a street crossing our path. We eventually found a way through the parade and at lunch at the Pike's Place fish market. More specifically, Athenian Fish and Chips. The chef working infront of us had worked at Philmont in 2012. While at the market, we also bought a fresh salmon fillet for that night's dinner.
+- We also walked the boardwalk and saw the 2 hour wait for the original Starbucks. We found our way back to the car eventually, fighting back through the parade. We drove to REI just to get stickers.
+- Heading up the 5, we turned onto the 20 East. We planned to stay at a more primitive camp on Baker Lake. We found an amazing spot and were soon joined by a loud college group.
+- We cooked the salmon somehow very well on the camp stove, as well as some mashed potatoes and fresh greenbeans.
+- Here, we saw 2 snakes in camp.
+- Day 6 we headed through the North Cascades, a look into what Glacier might be. We were a little dissapointed but really only got the roadside attractions. We drove all the way through Spokane, listening to a Dollop espisode on Spokane's history of corrupt police. We ate dinner at a Panda Express in Idaho and headed for the hills for camp.
+- Midway to Spokane was the town of Winthrop, where we had lunch. Andrew drank all the pickle juice in the jar just to get the last 2 pickles and felt very sick afterwards.
 
 ## Day 7
 #### Tripometer: 2356.5 miles
-After a week on the road, we are getting a little tired. We restocked in Hayden, Idaho. At the supermarket, we pretty much emptied our cooler because we had not been completely successful in keeping everything cold. We spent 2 hours there but are back on track now. We bought a lot more fruit and planned the meals a bit better.
-We drove to just outside Glacier National Park, crossing into Montana. The first site we found seemed good. It was off a dirt road out of a staging area on Flathead Lake. There was a roudy group of teenagers at the end of the road, 50 meters away.
-We made dinner and started to chill until we heard that they had an AR and were seeming to have too much fun with it. We quickly packed up the tent and searched iOverlander for a new site. We found maybe the best spot on the trip. It is a rocky beach on the side of a river and we are with other overlanding folk. Super cool.
-We have to start being aware of bears now.
-Also, everytime we cross a bridge now, we all yell BRIDGE all the way across.
-Plan tomorrow is to enter Glacier National Park, use THE pass, and begin exploring.
+- After a week on the road, we are getting a little tired. We restocked in Hayden, Idaho. At the supermarket, we pretty much emptied our cooler because we had not been completely successful in keeping everything cold. We spent 2 hours there but are back on track now. We bought a lot more fruit and planned the meals a bit better.
+- We drove to just outside Glacier National Park, crossing into Montana. The first site we found seemed good. It was off a dirt road out of a staging area on Flathead Lake. There was a roudy group of teenagers at the end of the road, 50 meters away.
+- We made dinner and started to chill until we heard that they had an AR and were seeming to have too much fun with it. We quickly packed up the tent and searched iOverlander for a new site. We found maybe the best spot on the trip. It is a rocky beach on the side of a river and we are with other overlanding folk. Super cool.
+- We have to start being aware of bears now.
+- Also, everytime we cross a bridge now, we all yell BRIDGE all the way across.
+- Plan tomorrow is to enter Glacier National Park, use THE pass, and begin exploring.
 
 ## Day 8
 #### Tripometer: 2522.7
