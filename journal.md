@@ -76,7 +76,11 @@
 - We went back to the riverside for camp again. There were 2 van setups right next to us. One was interested in our tent and both had nice dogs.
 
 ## Day 9
-#### Tripometer:
+#### Tripometer: 2614.5
 - We went back through Going-to-the-Sun Road today. It was a little less foggy and way clearer.
 - As we ended, we turned to go up to Many Glacier. We got to the entrance to the park but a Ranger told us that that part of the park was too congested and that they couldnt let us in.
 - We got to camp, an RV park out of St. Mary's, and sat at the counter in the office for a bit of WiFi and charge. We have started laundry, taken showers, and are sitting outside the office watching various fireworks blast over the town.
+
+- As Im about to go to bed, we wired up a long male to female 12vdc cigarette cable into the tent off of the outlet in the car that is always on to charge out phones in the tent. Very sketchy.
+- There are various firework shows going on with a main one just over a hill that we cant see. We spent a few hours finishing laundry and watched a family light ground fireworks on the side of the road.
+- We plan on eating a nice breakfast at the diner on the grounds.
