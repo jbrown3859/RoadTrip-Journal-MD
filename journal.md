@@ -70,4 +70,13 @@
 - Plan tomorrow is to enter Glacier National Park, use THE pass, and begin exploring.
 
 ## Day 8
-#### Tripometer: 2522.7
+#### Tripometer: 2522.7 miles
+- Today we drove the Going-to-the-Sun Road through Glacier. It was really foggy but we stopped often for pictures. About half way up we were stopped in a line of cars. They were plowing snow and had nearly the entire road wait. We got through, trying to stop at Logan Pass but couldnt find parking. 
+- After we got through the road, we took the 2 back which was a lot longer and kinda went through the middle of nowhere montana.
+- We went back to the riverside for camp again. There were 2 van setups right next to us. One was interested in our tent and both had nice dogs.
+
+## Day 9
+#### Tripometer:
+- We went back through Going-to-the-Sun Road today. It was a little less foggy and way clearer.
+- As we ended, we turned to go up to Many Glacier. We got to the entrance to the park but a Ranger told us that that part of the park was too congested and that they couldnt let us in.
+- We got to camp, an RV park out of St. Mary's, and sat at the counter in the office for a bit of WiFi and charge. We have started laundry, taken showers, and are sitting outside the office watching various fireworks blast over the town.
