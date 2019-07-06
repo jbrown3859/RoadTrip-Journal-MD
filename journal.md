@@ -84,3 +84,14 @@
 - As Im about to go to bed, we wired up a long male to female 12vdc cigarette cable into the tent off of the outlet in the car that is always on to charge out phones in the tent. Very sketchy.
 - There are various firework shows going on with a main one just over a hill that we cant see. We spent a few hours finishing laundry and watched a family light ground fireworks on the side of the road.
 - We plan on eating a nice breakfast at the diner on the grounds.
+
+- Watching Pulp Fiction in the tent as it downloads on Netflix.
+
+## Day 10
+#### Tripometer: 2949.6
+- Today we started off by eating breakfast at Johnson's Cafe, the restaurant at the RV park. We had to wait a decent amount of time but it was worth the wait. We all got the loaded omelete. Cole signed us in wrong and one of the watiers thought we were foreign and didnt speak english.
+- After breakfast, we headed towards Red Cliff campground just north of Yellowstone.
+- We restocked on Helena at the quietest supermarket Ive ever seem. We also got more dry ice for the cooler.
+- The drive through southern montana is super boring. Though, the speed limit was 80 almost all the way.
+- We arrived at camp, setup, and took a walk around. We found some rock climbers up a short trail out of camp.
+- We are trying to book white water rafting for tomorrow but Andrew is the only one with any service. We called Mr. Obryan to try to secure a reservation because andrew's service can really only call and text. Will see if it worked tomorrow.\
