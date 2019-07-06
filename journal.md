@@ -95,3 +95,5 @@
 - The drive through southern montana is super boring. Though, the speed limit was 80 almost all the way.
 - We arrived at camp, setup, and took a walk around. We found some rock climbers up a short trail out of camp.
 - We are trying to book white water rafting for tomorrow but Andrew is the only one with any service. We called Mr. Obryan to try to secure a reservation because andrew's service can really only call and text. Will see if it worked tomorrow.\
+
+- We decided to instead schedule for sunday and make tomorrow an easy morning.
