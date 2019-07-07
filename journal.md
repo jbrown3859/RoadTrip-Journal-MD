@@ -41,7 +41,6 @@
 - Tomorrow we will continue up to Cape Flattery and Neah Bay, meet Andrew's family, and stay near Port Angeles in an RV Park with them. The next day we have planned to go to the REI Flagship store in Seattle, ferry north, and explore Mt. Baker-Snoqualmie National Forest near the US Canada Border.
 - Trying to wake up a little earlier tomorrow.
 
-##### Days 4-6 are written in the past tense. I didnt do them until night 7
 ## Days 4-6
 #### Tripometer: 2068.2 miles
 - So after Florence, the PNW Itineray went out the window. After Snag Lake, we went up the Washington Coast and explored a little of Olympic National Park. Stopped at the Ranger Station and hiked less than a mile to a large tree.
@@ -59,6 +58,7 @@
 - Here, we saw 2 snakes in camp.
 - Day 6 we headed through the North Cascades, a look into what Glacier might be. We were a little dissapointed but really only got the roadside attractions. We drove all the way through Spokane, listening to a Dollop espisode on Spokane's history of corrupt police. We ate dinner at a Panda Express in Idaho and headed for the hills for camp.
 - Midway to Spokane was the town of Winthrop, where we had lunch. Andrew drank all the pickle juice in the jar just to get the last 2 pickles and felt very sick afterwards.
+##### Days 4-6 are written in the past tense. I didnt do them until night 7
 
 ## Day 7
 #### Tripometer: 2356.5 miles
