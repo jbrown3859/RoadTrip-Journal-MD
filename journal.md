@@ -1,4 +1,4 @@
-# Journal
+# 2019 Summer Road Trip
 
 ## Day 1
 #### Tripometer: 738
@@ -93,7 +93,22 @@
 - After breakfast, we headed towards Red Cliff campground just north of Yellowstone.
 - We restocked on Helena at the quietest supermarket Ive ever seem. We also got more dry ice for the cooler.
 - The drive through southern montana is super boring. Though, the speed limit was 80 almost all the way.
-- We arrived at camp, setup, and took a walk around. We found some rock climbers up a short trail out of camp.
+- We arrived at Red Cliff, setup, and took a walk around. We found some rock climbers up a short trail out of camp.
 - We are trying to book white water rafting for tomorrow but Andrew is the only one with any service. We called Mr. Obryan to try to secure a reservation because andrew's service can really only call and text. Will see if it worked tomorrow.\
 
 - We decided to instead schedule for sunday and make tomorrow an easy morning.
+
+## Day 11
+#### Tripometer: 3141.5 (PI!!!)
+- We slept in today because we werent going to go white water rafting.
+- We made it to West Yellowstone by around 11:30 but the traffic was so bad that we made it to the ever-so packed Old Faithful by around 3:10. We got there just in time to see it go at 3:37.
+- Yellowstone is very cool, but the way in which it it commercialized is obscene. It was worse than Disneyland. We concluded that Death Valley is far superior and that this was the only time we needed to see the park.
+- Although it was like a zoo of people, we did see some cool wildlife in the stop and go traffic. There were dozens of Bison, many geese in the various small lakes and rivers, and some Moose, one with a large rack.
+
+- We ate dinner in West Yellowstone at a BBQ place (very good place called Beartooth) after spending many brutal hours in stop and go traffic trying to exit the park.
+- Arrived at Rainbow Point and learned that we had booked a site with electric. We are charging up all devices in camp instead of in the car.
+- Rafting tomorrow morning at 9:45, but the place is about an hour north, making it an early morning. No Pulp Fiction tonight.
+
+- In these areas we actually hace to be thinking of bears. When we go to bed we have to put all food in the cooler or the car.
+
+- Reception out here is spotty and really only in the city. However, there was a tower dedicated to the Old Faithful Visitor's Center.
