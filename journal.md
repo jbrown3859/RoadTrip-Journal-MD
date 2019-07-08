@@ -76,7 +76,7 @@
 - We went back to the riverside for camp again. There were 2 van setups right next to us. One was interested in our tent and both had nice dogs.
 
 ## Day 9
-#### Tripometer: 2614.5
+#### Tripometer: 2614.5 miles
 - We went back through Going-to-the-Sun Road today. It was a little less foggy and way clearer.
 - As we ended, we turned to go up to Many Glacier. We got to the entrance to the park but a Ranger told us that that part of the park was too congested and that they couldnt let us in.
 - We got to camp, an RV park out of St. Mary's, and sat at the counter in the office for a bit of WiFi and charge. We have started laundry, taken showers, and are sitting outside the office watching various fireworks blast over the town.
@@ -88,7 +88,7 @@
 - Watching Pulp Fiction in the tent as it downloads on Netflix.
 
 ## Day 10
-#### Tripometer: 2949.6
+#### Tripometer: 2949.6 miles
 - Today we started off by eating breakfast at Johnson's Cafe, the restaurant at the RV park. We had to wait a decent amount of time but it was worth the wait. We all got the loaded omelete. Cole signed us in wrong and one of the watiers thought we were foreign and didnt speak english.
 - After breakfast, we headed towards Red Cliff campground just north of Yellowstone.
 - We restocked on Helena at the quietest supermarket Ive ever seem. We also got more dry ice for the cooler.
@@ -99,7 +99,7 @@
 - We decided to instead schedule for sunday and make tomorrow an easy morning.
 
 ## Day 11
-#### Tripometer: 3141.5 (PI!!!)
+#### Tripometer: 3141.5 miles (PI!!!)
 - We slept in today because we werent going to go white water rafting.
 - We made it to West Yellowstone by around 11:30 but the traffic was so bad that we made it to the ever-so packed Old Faithful by around 3:10. We got there just in time to see it go at 3:37.
 - Yellowstone is very cool, but the way in which it it commercialized is obscene. It was worse than Disneyland. We concluded that Death Valley is far superior and that this was the only time we needed to see the park.
@@ -112,3 +112,22 @@
 - In these areas we actually hace to be thinking of bears. When we go to bed we have to put all food in the cooler or the car.
 
 - Reception out here is spotty and really only in the city. However, there was a tower dedicated to the Old Faithful Visitor's Center.
+
+## Day 12
+#### Tripometer: 3286.9 miles
+- We started today a little early, waking up at "7". We made our way from Rainbow Point campground to Montana Whitewater, a few miles north of Big Sky.
+- We got our gear and got on the bus to the dropoff point where we met our guide, Hatter.
+- Got on the water and pretty soon the guide had noticed the Philmont brand on my hat. He had been to Philmont in '99 as a young adult as well.
+- The other three on our raft were part of the Peace Corps and were working in Butte.
+- The Gallatin river has some good class 3 rapids, but the so called class 4 was not nearly big enough. Most of the river was calm but with a strong enough current such that we didnt need to paddle most of the time.
+- We got out of the river and back to the main office by lunch time and made more tailgate samdwiches in the parking lot.
+
+- I wanted to check on UCR housing, so we drove south into West Yellowstone and found a coffee and ice cream shop that we though had WiFi. I asked for the password, but what was given didn't work. We finished our ice cream and checked out the photography shop on the main street. They rent out lenses good for wildlife, like the Tamron 150-600, right outside the park, a smart idea.
+- We went back to Rainbow Point campground and sat on the lake, eating oranges, for an hour or so. We watched a truck back the boat into the lake, try to get it off the trailer, then pull the truck forward off the boat ramp with the boat still on and drive off.
+- Cole tried to make the skirt steak for dinner with rice and onions. The meat was so tough it was almost inedible.
+
+- Andrew tried to was his hair with a little soap and the shower bag which we filled when we got to camp. However, Cole had the CampSuds and was squeezing more and more soap into Andrew's hair when he looked down. It took him around 10 minutes to wash his hair and didn't know what happened.
+
+- We felt the wind pickup and knew that meant rain. We quickly packed up, bear proofed camp, and got in the tent. It didnt rain and we are currently sitting in the tent, watching the campers next to us have a fire while Andrew writes his novel.
+
+## Day 13
