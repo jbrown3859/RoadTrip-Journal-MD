@@ -27,10 +27,10 @@
 #### Tripometer: idk
 - Tent was wet so we decided to let it dry a little in the morning sun. We looked at the traffic for the route to Eugene and decided against a roundtrip journey.
 - We headed north on the 101 again and found some interesting things/observations
-- a large cutout (maybe 15 ft tall) of a Japanese man holding a plate of sushi outside a closed Japanese restaurant
-- A ton of drive thru coffee stands
-- The suggested posted speeds for turns are high estimates, unlike california's lowball
-- Cool tide pools along the coast
+..- a large cutout (maybe 15 ft tall) of a Japanese man holding a plate of sushi outside a closed Japanese restaurant
+..- A ton of drive thru coffee stands
+..- The suggested posted speeds for turns are high estimates, unlike california's lowball
+..- Cool tide pools along the coast
 
 - We got to Cannon Beach and realized that the hype wasn't worth it. Drove to Ecola State Park and stopped at a cool overlook on Ecola Beach.
 
@@ -115,7 +115,7 @@
 
 ## Day 12
 #### Tripometer: 3286.9 miles
-- We started today a little early, waking up at "7". We made our way from Rainbow Point campground to Montana Whitewater, a few miles north of Big Sky.
+- We started today a little early, waking up at "7", really 7:15 after a few alarms. We made our way from Rainbow Point campground to Montana Whitewater, a few miles north of Big Sky.
 - We got our gear and got on the bus to the dropoff point where we met our guide, Hatter.
 - Got on the water and pretty soon the guide had noticed the Philmont brand on my hat. He had been to Philmont in '99 as a young adult as well.
 - The other three on our raft were part of the Peace Corps and were working in Butte.
@@ -131,3 +131,18 @@
 - We felt the wind pickup and knew that meant rain. We quickly packed up, bear proofed camp, and got in the tent. It didnt rain and we are currently sitting in the tent, watching the campers next to us have a fire while Andrew writes his novel.
 
 ## Day 13
+#### 3481.0 miles
+- Started today late around 9 and packed up quick to get back through the park. Even with less traffic due to it being a monday, it took us a long time to get through to the southern entrance.
+- Entered the Grand Teton area and stopped frequently to see the amazing spires.
+- I quickly wanted to summit the peaks of and around the Grand Teton at 13,770 ft. I looked into it at one of the visitor's centers and found that it is a short trail of 2 miles but with a lot of mountaineering and 2700 ft of elevation gain just to the Grand Teton. I want to plan a long, multi day trip to summit a lot of the peaks and spires in the area.
+- We ate lunch along Jackson Lake and made our way to Jackson Hole around 3.
+
+- Jackson Hole has a full mountain bike park and what looks like to be an amazing ski area in the winter with a tram to a peak at somewhere around 10,000 ft.
+
+- Made our way south of Jackson to cut a little time out of tomorrow.
+
+- Camping in the backcountry of Wyoming where free range cattle live and hunting is big. Near the truck is a trailer with ATVs, but no truck. Must be a base camp for a hunter.
+- On our way up to the site, we found cattle in the road. The didnt want to move at the sight of the truck, so we turned on the KCs and Cole rolled down his window and shouted at them. The finally moved.
+- We setup, made dinner, and saw the cows coming up the hill. There were mayube 30-40 in the herd coming up. We quickly packed up dinner and got in the tent to watch the cows pass. They got pretty close and we could watch them walk in a herd up the road 20-30 feet away from the tent.
+
+- Tomorrow we will drive down to Steamboat Spring, CO. This is were Big Agnes is headquartered and where we will restock.
