@@ -146,3 +146,25 @@
 - We setup, made dinner, and saw the cows coming up the hill. There were mayube 30-40 in the herd coming up. We quickly packed up dinner and got in the tent to watch the cows pass. They got pretty close and we could watch them walk in a herd up the road 20-30 feet away from the tent.
 
 - Tomorrow we will drive down to Steamboat Spring, CO. This is were Big Agnes is headquartered and where we will restock.
+
+## Day 14
+#### Tripometer: 3839.6 miles
+- Mainly travel day.
+
+- We woke up late because we heard rain at 7:30. Watched the cows get run to trailers by guys on horseback.
+- Figured that most of our dairy had started to go bad and threw most of it out.
+
+- Southern Wyoming is incredibly boring.
+ 
+- We got to Steamboat Springs and restocked. Got some more dry ice and an incredibe amount of fruit.
+- Found a spot on iOverlander in the hills above. It is labled as an actual campground but is not managed. We got to the turnoff and found a rutted out dirt road.
+- Chose a flat spot where one can barely hear the highway.
+- Earlier, we had bought a bag of frozen pot stickers and were going to make then for this night. Thankfully, we bought another bag today because the origianl bag had turned into one massive, disgusting pot sticker.
+
+- We had a fire. Most of the wood around was decomposing and was very dry. 
+- Got in the tent and started watching Narcos on netflix. Got through S1E1 and half of E2.
+
+- Elevation for the night: 9208 ft. There was snow in various places around us.
+
+- I finally got a dorm room, D207 in Enginuity, but roommate situation is still up in the air.
+
