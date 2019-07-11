@@ -168,3 +168,20 @@
 
 - I finally got a dorm room, D207 in Enginuity, but roommate situation is still up in the air.
 
+## Day 15
+#### Tripometer: 4089.8 miles
+- I woke up around 6:45 and watched the alpine sunrise. There was some ice around and I could see my breath for a few minutes.
+
+- We were on the road by 8:30 towards Rocky Mountains National Park.
+
+- RMNP is amazing. The landscape is incredible as snow still covers a lot of the mountains. Most of RMNP is seen by backpacking in. The road through the park still sees a lot. It even gets to somewhere in the range of 12,000 ft.
+- We got through and headed towards Boulder.
+
+- As Cole and I have been talking to Andrew about college, we stopped at CU Boulder and walked around.
+- We decided to not stay in Boulder, our planned spot, but to drive down to Colorado Springs and stay in the hills. This would reduce tomorrows drive to Garden of the Gods and Pike's Peak.
+
+- We made breakfast for dinner, just chorizo, carton eggs, and OBrien style potatos. We have enough for another of this dinner.
+
+- Around this spot are some amazing trees to climb, with branches just far enough apart to challenge vertically and some close enough together to challenge one's planned route.
+
+- Tomorrow, we will wake early to go into Colorado Springs for breakfast and so Cole can finish housing. We will then explore Garden of the Gods and drive up Pike's Peak.
