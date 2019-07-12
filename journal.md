@@ -1,6 +1,6 @@
 # 2019 Summer Road Trip
 
-##### Photo link: [Google Photos]: https://photos.app.goo.gl/DJ6TizUsq8nhBZHC9
+##### Photo link: https://photos.app.goo.gl/DJ6TizUsq8nhBZHC9
 
 ## Day 1
 #### Tripometer: 738
