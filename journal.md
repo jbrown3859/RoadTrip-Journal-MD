@@ -56,7 +56,7 @@
 - Heading up the 5, we turned onto the 20 East. We planned to stay at a more primitive camp on Baker Lake. We found an amazing spot and were soon joined by a loud college group.
 - We cooked the salmon somehow very well on the camp stove, as well as some mashed potatoes and fresh greenbeans.
 - Here, we saw 2 snakes in camp.
-- Day 6 we headed through the North Cascades, a look into what Glacier might be. We were a little dissapointed but really only got the roadside attractions. We drove all the way through Spokane, listening to a Dollop espisode on Spokane's history of corrupt police. We ate dinner at a Panda Express in Idaho and headed for the hills for camp.
+- Day 6 we headed through the North Cascades, a look into what Glacier might be. We were a little disapointed but really only got the roadside attractions. We drove all the way through Spokane, listening to a Dollop espisode on Spokane's history of corrupt police. We ate dinner at a Panda Express in Idaho and headed for the hills for camp.
 - Midway to Spokane was the town of Winthrop, where we had lunch. Andrew drank all the pickle juice in the jar just to get the last 2 pickles and felt very sick afterwards.
 ##### Days 4-6 are written in the past tense. I didnt do them until night 7
 
@@ -185,3 +185,17 @@
 - Around this spot are some amazing trees to climb, with branches just far enough apart to challenge vertically and some close enough together to challenge one's planned route.
 
 - Tomorrow, we will wake early to go into Colorado Springs for breakfast and so Cole can finish housing. We will then explore Garden of the Gods and drive up Pike's Peak.
+
+## Day 16
+#### Tripometer: 4180.3
+- Woke up this morning and found a local diner to eat at. Cole had to do housing stuff and needed a place to sit and do it. Eating at an actual place with large plates and american style breakfast was nice too.
+- Drove through Garden of the Gods. I went in thinking it would be a cool spot to scramble with not a huge crowd. I was completely wrong. The crowd caused stop and go traffic in the park and scrambling is illegal without a climbing permit and proper gear. Disgusting and disapointing.
+
+- Hoped for more as we drove to Pikes Peak. We were open to the cost of 15 per person due to the road's fame. It was incredibly steep and windy, a lot of fun. However, there is construction at the top and they werent allowing cars all the way to the top. We had to park at mile 16 and take a shuttle to the peak. The crowd there also made it almost not worth it.
+- On the way down the road, there was a brake inspection check point. Just interesting to see that this is necessary.
+- Each car is supposed to ride 1st all the way down due to the steepness and length. If I didn't, the brakes would have gotten red hot and died.
+
+- At the base of Pike's Peak, we booked a spot for the night at Rocky Top RV Park. It had been 7 days since laundry, shower, and trash disposal, so the amenities here were the draw. The camp also has decent WiFi throughout.
+- We were able to charge all devices at the rec room and I was able to finish housing for good and find a roommate.
+
+- Dinner was chicken stir fry which actually turned out pretty well.
