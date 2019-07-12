@@ -1,5 +1,7 @@
 # 2019 Summer Road Trip
 
+##### Photo link: [Google Photos]: https://photos.app.goo.gl/DJ6TizUsq8nhBZHC9
+
 ## Day 1
 #### Tripometer: 738
 - We left La Crescenta around 6:20 and arrived at our stop for the night at around 6:30, making around 12 hours of driving for the day. 
