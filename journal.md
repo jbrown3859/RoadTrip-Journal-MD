@@ -201,3 +201,17 @@
 - We were able to charge all devices at the rec room and I was able to finish housing for good and find a roommate.
 
 - Dinner was chicken stir fry which actually turned out pretty well.
+
+## Day 17
+#### Tripometer: 4469.9 miles (+289.6)
+- Left the rv park today on good time to meander to Telluride.
+- Got ice at a Safeway, as well as a good amount of car food which we consume most of today.
+
+- Ate lunch in Gunnison at a park which had a full on bouldering boulder.
+
+- Got into Telluride around 3, had fun trying to park, and walked around the small town. The bike park had a grand openning a week or two ago so the town was full of nice Yetis and Treks. We walked around the mountaineering shops and looked at the gear that our local shops dont carry.
+- Found a spot to camp up a road just outside of the town. Kinda sketch, just a grass turnout next to the Telluride Water Treament Facility. I dont have service and there are a couple of other vehicles and tents next to us.
+- Made breakfast scram again for dinner but with bacon this time.
+
+- Changing our plans for the last few days. Instead of staying nearby in Silverton tomorrow, we will drive through, get breakfast at a diner on the way, and camp in Monument Valley. This gives us the opportunity to, the next day, drive to and stay at the North Rim of the Grand Canyon. Not only is this cooler, but it gets us a little closer to home for the last  drive.
+
