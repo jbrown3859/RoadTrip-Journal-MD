@@ -13,7 +13,7 @@
 - We stopped for gas in Fresno, Berkeley, and near Humbolt.
 
 ## Day 2
-#### Tripometer: 1002
+#### Tripometer: 1002 (+264)
 - Woke up this morning at 7:30, made coffee and bagels, and got on the road north, following the 101 all the way.
 - We followed a scenic route on Yurok territory and found an amazing overlook on the last of the California Coast.
 - Around 11:40, we stopped at Whaleshead beach. It was completely fogged in to about 50 foot visiblity and led to some interesting photos. We made lunch there and headed up north, stopping in Coos Bay. 
@@ -44,7 +44,7 @@
 - Trying to wake up a little earlier tomorrow.
 
 ## Days 4-6
-#### Tripometer: 2068.2 miles
+#### Tripometer: 2068.2 miles (+1066.2 across day 3 to day 6)
 - So after Florence, the PNW Itineray went out the window. After Snag Lake, we went up the Washington Coast and explored a little of Olympic National Park. Stopped at the Ranger Station and hiked less than a mile to a large tree.
 - We also stopped at a fish hatchery on reservation land that was playing a 23 min video on the history of the reservation. We did not watch the whole video.
 - Later, we arrived at Neah Bay and learned that we needed to buy a pass to park and hike to Cape Flattery. We did not do that. Instead, we just drove around and trued to find good photo ops. On the road out to Neah Bay one can see Canada.
@@ -63,7 +63,7 @@
 ##### Days 4-6 are written in the past tense. I didnt do them until night 7
 
 ## Day 7
-#### Tripometer: 2356.5 miles
+#### Tripometer: 2356.5 miles (+288.3)
 - After a week on the road, we are getting a little tired. We restocked in Hayden, Idaho. At the supermarket, we pretty much emptied our cooler because we had not been completely successful in keeping everything cold. We spent 2 hours there but are back on track now. We bought a lot more fruit and planned the meals a bit better.
 - We drove to just outside Glacier National Park, crossing into Montana. The first site we found seemed good. It was off a dirt road out of a staging area on Flathead Lake. There was a roudy group of teenagers at the end of the road, 50 meters away.
 - We made dinner and started to chill until we heard that they had an AR and were seeming to have too much fun with it. We quickly packed up the tent and searched iOverlander for a new site. We found maybe the best spot on the trip. It is a rocky beach on the side of a river and we are with other overlanding folk. Super cool.
@@ -72,13 +72,13 @@
 - Plan tomorrow is to enter Glacier National Park, use THE pass, and begin exploring.
 
 ## Day 8
-#### Tripometer: 2522.7 miles
+#### Tripometer: 2522.7 miles (+166.2)
 - Today we drove the Going-to-the-Sun Road through Glacier. It was really foggy but we stopped often for pictures. About half way up we were stopped in a line of cars. They were plowing snow and had nearly the entire road wait. We got through, trying to stop at Logan Pass but couldnt find parking. 
 - After we got through the road, we took the 2 back which was a lot longer and kinda went through the middle of nowhere montana.
 - We went back to the riverside for camp again. There were 2 van setups right next to us. One was interested in our tent and both had nice dogs.
 
 ## Day 9
-#### Tripometer: 2614.5 miles
+#### Tripometer: 2614.5 miles (91.8)
 - We went back through Going-to-the-Sun Road today. It was a little less foggy and way clearer.
 - As we ended, we turned to go up to Many Glacier. We got to the entrance to the park but a Ranger told us that that part of the park was too congested and that they couldnt let us in.
 - We got to camp, an RV park out of St. Mary's, and sat at the counter in the office for a bit of WiFi and charge. We have started laundry, taken showers, and are sitting outside the office watching various fireworks blast over the town.
@@ -90,7 +90,7 @@
 - Watching Pulp Fiction in the tent as it downloads on Netflix.
 
 ## Day 10
-#### Tripometer: 2949.6 miles
+#### Tripometer: 2949.6 miles (+335.1)
 - Today we started off by eating breakfast at Johnson's Cafe, the restaurant at the RV park. We had to wait a decent amount of time but it was worth the wait. We all got the loaded omelete. Cole signed us in wrong and one of the watiers thought we were foreign and didnt speak english.
 - After breakfast, we headed towards Red Cliff campground just north of Yellowstone.
 - We restocked on Helena at the quietest supermarket Ive ever seem. We also got more dry ice for the cooler.
@@ -101,7 +101,7 @@
 - We decided to instead schedule for sunday and make tomorrow an easy morning.
 
 ## Day 11
-#### Tripometer: 3141.5 miles (PI!!!)
+#### Tripometer: 3141.5 miles (PI!!!) (+191.9)
 - We slept in today because we werent going to go white water rafting.
 - We made it to West Yellowstone by around 11:30 but the traffic was so bad that we made it to the ever-so packed Old Faithful by around 3:10. We got there just in time to see it go at 3:37.
 - Yellowstone is very cool, but the way in which it it commercialized is obscene. It was worse than Disneyland. We concluded that Death Valley is far superior and that this was the only time we needed to see the park.
@@ -116,7 +116,7 @@
 - Reception out here is spotty and really only in the city. However, there was a tower dedicated to the Old Faithful Visitor's Center.
 
 ## Day 12
-#### Tripometer: 3286.9 miles
+#### Tripometer: 3286.9 miles (+145.4)
 - We started today a little early, waking up at "7", really 7:15 after a few alarms. We made our way from Rainbow Point campground to Montana Whitewater, a few miles north of Big Sky.
 - We got our gear and got on the bus to the dropoff point where we met our guide, Hatter.
 - Got on the water and pretty soon the guide had noticed the Philmont brand on my hat. He had been to Philmont in '99 as a young adult as well.
@@ -133,7 +133,7 @@
 - We felt the wind pickup and knew that meant rain. We quickly packed up, bear proofed camp, and got in the tent. It didnt rain and we are currently sitting in the tent, watching the campers next to us have a fire while Andrew writes his novel.
 
 ## Day 13
-#### 3481.0 miles
+#### 3481.0 miles (+194.1)
 - Started today late around 9 and packed up quick to get back through the park. Even with less traffic due to it being a monday, it took us a long time to get through to the southern entrance.
 - Entered the Grand Teton area and stopped frequently to see the amazing spires.
 - I quickly wanted to summit the peaks of and around the Grand Teton at 13,770 ft. I looked into it at one of the visitor's centers and found that it is a short trail of 2 miles but with a lot of mountaineering and 2700 ft of elevation gain just to the Grand Teton. I want to plan a long, multi day trip to summit a lot of the peaks and spires in the area.
@@ -150,7 +150,7 @@
 - Tomorrow we will drive down to Steamboat Spring, CO. This is were Big Agnes is headquartered and where we will restock.
 
 ## Day 14
-#### Tripometer: 3839.6 miles
+#### Tripometer: 3839.6 miles (+358.6)
 - Mainly travel day.
 
 - We woke up late because we heard rain at 7:30. Watched the cows get run to trailers by guys on horseback.
@@ -171,7 +171,7 @@
 - I finally got a dorm room, D207 in Enginuity, but roommate situation is still up in the air.
 
 ## Day 15
-#### Tripometer: 4089.8 miles
+#### Tripometer: 4089.8 miles (+250.2)
 - I woke up around 6:45 and watched the alpine sunrise. There was some ice around and I could see my breath for a few minutes.
 
 - We were on the road by 8:30 towards Rocky Mountains National Park.
@@ -189,7 +189,7 @@
 - Tomorrow, we will wake early to go into Colorado Springs for breakfast and so Cole can finish housing. We will then explore Garden of the Gods and drive up Pike's Peak.
 
 ## Day 16
-#### Tripometer: 4180.3
+#### Tripometer: 4180.3 miles (+90.5)
 - Woke up this morning and found a local diner to eat at. Cole had to do housing stuff and needed a place to sit and do it. Eating at an actual place with large plates and american style breakfast was nice too.
 - Drove through Garden of the Gods. I went in thinking it would be a cool spot to scramble with not a huge crowd. I was completely wrong. The crowd caused stop and go traffic in the park and scrambling is illegal without a climbing permit and proper gear. Disgusting and disapointing.
 
