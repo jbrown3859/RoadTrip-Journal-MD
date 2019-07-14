@@ -215,3 +215,26 @@
 
 - Changing our plans for the last few days. Instead of staying nearby in Silverton tomorrow, we will drive through, get breakfast at a diner on the way, and camp in Monument Valley. This gives us the opportunity to, the next day, drive to and stay at the North Rim of the Grand Canyon. Not only is this cooler, but it gets us a little closer to home for the last  drive.
 
+## Day 18
+#### Tripometer: 4775.6 miles (+305.7)
+
+- Started today by getting out of Telluride. We let Andrew drive out of camp.
+- Found a diner in Ridgway, Kate's place. There was a line outside but the wait was worth it. Everything must have been homemade and was amazing.
+
+- Made our was to Ouray. Very cool, small mountain town full of trail vehicles.
+- As we left Ouray for Silverton, we saw snow and the trailheads for the famous offroad trails. In Ouray, Andrew bought socks that say "I love Jesus", and calls them jocks: jesus socks.
+- Silverton isnt as cool. Just got gas there. Made our way to Durango.
+
+- Restocked a little for the last 2 days at an Albertson's in Durango. I had to upload a photo for UCR and had good reception in the parking lot so I setup a hotspot and frantically did that. Made our way towards Mexican Hat and Valley of the Gods.
+
+- We entered Utah and took our picture infront of the sign.
+
+- Got to Valley of the Gods and drove around. Cole found a bump that he thought he could get some air. Andrew and I got out and shot some interesting shots. He never actually got air but the photos show the front tires dropping, making the truck look lifted.
+- Left Valley of the Gods and saw Mexican Hat. Just a mushroom rock perched on a spire.
+- Got slurpees in Mexican Hat because it was already 100 degress. Realized that our spot for the night was back towards Valley of the Gods.
+
+- The road to the iOverlander spot was unmaintained and full of tight, steep switchbacks up a cliff. We found a spot atop the plateau and setup. It was only around 5 and blazing hot, so we postponed dinner till later to wait out the heat. 
+- The view was amazing. We were on top of the plateau overlooking a massive valley. There was a college group near us and a couple other cars not too far away. Got some cool photos near the edge of the cliff.
+- Before dinner we noticed rain across the massive valley. The storm started to get bigger and eventually we saw lightning. In the next few hours, the storm got bigger and bigger, surrounding our spot. It made for some cool videos. The lightning got so strong and frequent that we started to consider leaving the plateau if it got much worse. 
+- As soon as it started to rain we scrambled to pack up and get the tallest object on the plateau, the car, back down into the valley.
+- We went back down the unmaintained, steep switchbacks and are now parked at the entrance to Valley of the Gods trying to sleep in the cab.
