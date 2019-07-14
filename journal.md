@@ -205,7 +205,7 @@
 ## Day 17
 #### Tripometer: 4469.9 miles (+289.6)
 - Left the rv park today on good time to meander to Telluride.
-- Got ice at a Safeway, as well as a good amount of car food which we consume most of today.
+- Got ice at a Safeway, as well as a good amount of car food which we consumed most of today.
 
 - Ate lunch in Gunnison at a park which had a full on bouldering boulder.
 
