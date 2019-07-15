@@ -238,3 +238,25 @@
 - Before dinner we noticed rain across the massive valley. The storm started to get bigger and eventually we saw lightning. In the next few hours, the storm got bigger and bigger, surrounding our spot. It made for some cool videos. The lightning got so strong and frequent that we started to consider leaving the plateau if it got much worse. 
 - As soon as it started to rain we scrambled to pack up and get the tallest object on the plateau, the car, back down into the valley.
 - We went back down the unmaintained, steep switchbacks and are now parked at the entrance to Valley of the Gods trying to sleep in the cab.
+
+## Day 19
+#### Tripometer: 5438.9 miles (+663.3 holy crap)
+
+- Started today on reasonable time even with waking late. The night in the cab wasnt fun but we all got some sleep. 
+- With a little breakfast we realized that the dry ice makes all the produce in the cooler very bitter.
+- We headed towards Monument Valley.
+
+- We just rolled through Monument Valley because we had to pay to get into the visitor center.
+
+- Headed into Kayenta and stopped at the Navajo Code Talkers museum Burger King. Interesting spot and not super obvious that it was there.
+
+- Drove towards the North Rim of the Grand Canyon. We made our final lunch just outside and drove to the visitor center. On the North Rim, the visitor center is way less touristy and doesnt have a lot. We realized that any camping spot would be a long drive away on dirt roads and that staying at the North Rim would make tomorrow really long at around 10 hours.
+- We drove out of the park and decided to go towards the 15, our shortest route home. As we passed through St George, the car was reading that it was 110 degrees outside. There would have been a nice spot but the heat would have been unbearable. Continued west and got to Mesquite. There, we got gas, cold water, and dollar soft serve from McDonalds. When we got back in the car, the read-out said 136.
+- Decided to keep driving towards home and to find a cooler spot or to stop when we were tired. Got into Vegas and had dinner at an In-n-Out, something which we had missed for 3 weeks.
+- Everything south of Vegas is our home turf. Cole picked a spot at the southern end of the Mojave Road. It was still a couple hours away but we were up for it.
+- We stopped unknowingly at the largest Chevron, having 96 pumps. The convenience store was like a mega Disneyland gas station convenience store. Very weird.
+
+- Got to our spot aroud 10:30 and it is still 93 degrees out. We setup the tent and are trying to get any sleep we can in the insane heat.
+- Last drive tomorrow will be easy. Just rolling down the 15 through Barstow then picking up the 210 West home.
+
+- Today was just insane driving to try to escape the heat and we are cooked.
